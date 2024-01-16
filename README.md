@@ -1,0 +1,3 @@
+- 👋 Welcome, I’m @ncodingnl
+- 📫 How to reach me, discord is: nsnbar
+- 😄 Pronouns: he/him
